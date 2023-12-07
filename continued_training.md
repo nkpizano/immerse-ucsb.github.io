@@ -38,9 +38,10 @@ The Institute of Mixture Modeling for Equity-Oriented Researchers, Scholars, and
 
 ### Friday, December 8, 2023
 
--   Speaker/Topic:
+-   Speaker/Topic: [Amy Bellmore](https://edpsych.education.wisc.edu/staff/bellmore-amy/)
 
 -   Materials:
+       - [Articles](https://drive.google.com/drive/folders/1Zzn2i4-2dA8dLz7MnTgwVC-p-bK4jde9?usp=sharing)
 
 ### Friday, January 19, 2024
 
